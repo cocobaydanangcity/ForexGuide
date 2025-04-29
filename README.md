@@ -1,6 +1,6 @@
 # ForexGuide How to start forex trading: A complete guide for beginners
 
-# 🌍 Welcome to **ForexGuide** – Your Trusted Partner in the Forex Trading World!
+🌍 Welcome to **ForexGuide** – Your Trusted Partner in the Forex Trading World!
 
 At **ForexGuide**, we are committed to empowering traders of all levels with the **knowledge, tools, and insights** needed to succeed in the dynamic world of forex trading. Whether you're a beginner exploring currency markets or a seasoned investor seeking to refine your strategies, **ForexGuide** is your go-to resource for everything related to **Forex, CFDs, and global markets**.
 
