@@ -263,8 +263,8 @@ Ready to turn $1 into your trading future? 💰
 👉 **Sign up with trusted brokers like Exness or Justmarrkets or XM today and start your forex journey!**
 
 👉 [**Open Account with Exness** 🔗](https://one.exnesstrack.org/boarding/sign-up/a/newup2)
-👉 [**Join JustMarkets Now** 🔗](https://one.justmarkets.link/a/79iqw0j6nj/landing/quick-start)
-👉 [**Trade with XM** 🔗](https://clicks.pipaffiliates.com/c?c=589901&l=en&p=1)
+👉 [**Join FBS Now** 🔗](https://fbs.partners?ibl=587836&ibp=21398815)
+
 
 > _\"Every expert was once a beginner. Your $1 is not just money — it’s your first investment into financial freedom.\"_
 
