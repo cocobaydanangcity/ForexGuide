@@ -22,26 +22,6 @@ Welcome to a deep dive into the world of forex trading in Botswana, where we unc
 
 9️⃣ Amarkets: [Go to broker](https://www.amarkets.com/?g=WNRAN9&utm_source=google&utm_campaign=WNRAN9&utm_medium=linkedin) 👈
 
-💥💥💥BEST FOREX BROKER IN THE WORLD:
-
-1️⃣ Exness: [Open An Account](https://one.exnesstrack.org/boarding/sign-up/a/newup2) or [Go to broker](https://one.exnesstrack.org/a/newup2) 👈
-
-2️⃣ JustMarkets: [Open An Account](https://one.justmarkets.link/a/79iqw0j6nj/landing/quick-start) or [Go to broker](https://one.justmarkets.link/a/79iqw0j6nj) 👈
-
-3️⃣ XM: [Open An Account](https://clicks.pipaffiliates.com/c?c=589901&l=en&p=1) or [Go to broker](https://clicks.pipaffiliates.com/c?c=589901&l=en&p=0) 👈
-
-4️⃣ Pepperstone: [Go to broker](https://trk.pepperstonepartners.com/aff_c?offer_id=367&aff_id=33954) 👈
-
-5️⃣ FpMarkets: [Open An Account](https://portal.fpmarkets.com/int-EN/register?redir=stv&fpm-affiliate-utm-source=IB&fpm-affiliate-agt=56244) or [Go to broker](https://www.fpmarkets.com/?redir=stv&fpm-affiliate-utm-source=IB&fpm-affiliate-agt=56244) 👈
-
-6️⃣ Avatrade: [Open An Account](https://www.avatrade.com/trading-account2?versionId=10301&tag=194438) or [Go to broker](https://www.avatrade.com?versionId=10301&tag=194438) 👈
-
-7️⃣ XTB: [Open An Account](https://link-pso.xtb.com/pso/CgswI) or [Go to broker](https://link-pso.xtb.com/pso/zrUCY) 👈
-
-8️⃣ FBS: [Go to broker](https://fbs.partners?ibl=587836&ibp=21398815) 👈
-
-9️⃣ Amarkets: [Go to broker](https://www.amarkets.com/?g=WNRAN9&utm_source=google&utm_campaign=WNRAN9&utm_medium=linkedin) 👈
-
 ---
 
 ## Table of Contents
